@@ -1,3 +1,4 @@
+https://github.com/addi00000/empyrean/blob/main/img/banner.png
 (DISCORD) https://discord.gg/u8uNXMB3cr
 SETUP
 Extract zip
