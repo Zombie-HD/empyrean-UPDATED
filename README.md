@@ -1,3 +1,4 @@
+![image](https://github.com/Zombie-HD/empyrean-UPDATED/assets/107773897/6db41673-8842-4d93-9889-af4f12b3a3a3)
 
 (DISCORD) https://discord.gg/u8uNXMB3cr
 SETUP
